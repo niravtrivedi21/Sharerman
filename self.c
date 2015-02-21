@@ -4,8 +4,4 @@ I am at DA-IICT.
 bye.
 ahdjkashd
 
-hi i m nirav
-i am at da.
-hiiiiii
-bye cya....
 
